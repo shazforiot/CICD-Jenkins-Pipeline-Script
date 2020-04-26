@@ -4,7 +4,11 @@ Today we are going to see a complete tutorial on continuous integration and cont
 
 Follow me @: 
 https://www.instagram.com/thetips4you
+
 https://www.instagram.com/thetipsforyou
+
 https://www.youtube.com/channel/UCoOq-DtESvayx5yJE5H6-qQ
+
 https://fb.me/thetipsforall
+
 http://www.thetips4you.com
